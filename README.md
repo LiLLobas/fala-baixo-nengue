@@ -6,4 +6,4 @@ sei porra nenhuma nessa merda
 NÃO FALA COMIGO
 00001098265300SP@al.educacao.sp.gov.br
 
-![]([https://www.pinterest.com.mx/pin/597360338057263566/](https://i.pinimg.com/originals/dc/28/5b/dc285bb445f409ec53f59569efc0672b.gif))
+![](https://i.pinimg.com/originals/dc/28/5b/dc285bb445f409ec53f59569efc0672b.gif)
