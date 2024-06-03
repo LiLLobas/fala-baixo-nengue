@@ -3,8 +3,6 @@
 
 sei porra nenhuma nessa merda
 
-olha não
-
 NÃO FALA COMIGO
 00001098265300SP@al.educacao.sp.gov.br
 
