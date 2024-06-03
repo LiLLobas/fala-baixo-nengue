@@ -1,6 +1,8 @@
 # MIM DE FAROFA
 É o lobas
+
 sei porra nenhuma nessa merda
+
 olha não
 
 NÃO FALA COMIGO
